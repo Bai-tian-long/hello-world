@@ -1,2 +1,2 @@
 # hello-world
-my first github repository
+i love food, and video games,and wuxia novels. and i think karate is cool
